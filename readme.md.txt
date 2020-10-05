@@ -1,0 +1,1 @@
+nakakalungkot naman tong laptop na to
